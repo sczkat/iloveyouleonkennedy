@@ -26,13 +26,13 @@ dni :⠀spardacest⠀ <img width="25" height="25" alt="tumblr_e6dba8165f2fac602c
 </a>
 <br>
 <br>
-<img width="150" height="150" alt="Untitled78_20260927051526" src="https://github.com/user-attachments/assets/c14174ea-cf18-4008-a121-5ebcf0ccd37a" />
+<img width="170" height="170" alt="Untitled78_20260927051526" src="https://github.com/user-attachments/assets/c14174ea-cf18-4008-a121-5ebcf0ccd37a" />
 
 
-<img width="150" height="150" alt="Untitled78_20260927051533" src="https://github.com/user-attachments/assets/7e257a36-74c4-4044-a4ba-34a21c08e5cb" />
+<img width="170" height="170" alt="Untitled78_20260927051533" src="https://github.com/user-attachments/assets/7e257a36-74c4-4044-a4ba-34a21c08e5cb" />
 
 
-<img width="150" height="150" alt="Untitled78_20260927051537" src="https://github.com/user-attachments/assets/ca70269c-1a19-4654-a4dc-3b8b07a14142" />
+<img width="170" height="170" alt="Untitled78_20260927051537" src="https://github.com/user-attachments/assets/ca70269c-1a19-4654-a4dc-3b8b07a14142" />
 
 <br>
 <br>
