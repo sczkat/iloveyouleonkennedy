@@ -10,11 +10,11 @@
 <br>
 <br>
 <img width="25" height="25" alt="tumblr_16f4f462be972a605d8ba5bf47e0a70a_45407b1e_75" src="https://github.com/user-attachments/assets/91eb1fdf-40b6-498c-90c3-a792c00ef607" />
-$$\color{#2f2a2b} \text{𓈒⠀Frank⠀⠀♱⠀⠀16　 𓎟𓎟 　he　him⠀𓈒}$$ 
+$$\color{#3d3637} \text{𓈒⠀Frank⠀⠀♱⠀⠀16　 𓎟𓎟 　he　him⠀𓈒}$$ 
 <img width="25" height="25" alt="tumblr_c4aa1f966e50e829b9e5d0175d6a61b9_6a8450a7_75" src="https://github.com/user-attachments/assets/a4b3c75f-591f-4e4f-a482-7e6de44a96a1" />
 <br>
 <br>
-$$\color{#3d3637} \text{──　､⠀c + h  ✓ ‎ +⠀ 𓈒!}$$ 
+$$\color{#564d4f} \text{──　､⠀c + h  ✓ ‎ +⠀ 𓈒!}$$ 
 <br>
 <br>
 dni :⠀spardacest⠀ <img width="25" height="25" alt="tumblr_e6dba8165f2fac602c5e77c677a63fe2_2024d105_100" src="https://github.com/user-attachments/assets/6e0dd62e-4682-4b66-b74d-faa3f0fea7fb"/>⠀ resident evil elitists ꒱ 𓈒
