@@ -18,7 +18,8 @@
 dni :⠀spardacest⠀ <img width="25" height="25" alt="tumblr_e6dba8165f2fac602c5e77c677a63fe2_2024d105_100" src="https://github.com/user-attachments/assets/6e0dd62e-4682-4b66-b74d-faa3f0fea7fb"/>⠀ resident evil elitists ꒱ 𓈒
 <br>
 <br>
-<img width="430" height="25" alt="image_2026-09-27_012706584" src="https://github.com/user-attachments/assets/abe35c66-bff8-47fd-8a86-36d6bf5f4266" />
+<img width="450" height="25" alt="image_2026-09-27_012706584" src="https://github.com/user-attachments/assets/abe35c66-bff8-47fd-8a86-36d6bf5f4266" />
+<br>
 <br>
 <a href="https://open.spotify.com/user/q37rkcovd02nha9ny4hisgp35">
   <img src="https://spotify-recently-played.jeffreyca.workers.dev/svg?user=q37rkcovd02nha9ny4hisgp35&amp;count=1&amp;header=0&amp;time=0&amp;logo=0&amp;avatar=0&amp;now_playing=0&amp;bg_color=2f2a2b&amp;text_color=7a7577&amp;artist_color=7a7577&amp;meta_color=9c9193" alt="Spotify recently played" width="400" />
