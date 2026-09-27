@@ -7,9 +7,9 @@
 <br>
 <img width="450" height="25" alt="image_2026-09-27_012455534" src="https://github.com/user-attachments/assets/c111ea04-1a4e-4f11-9af7-c772aefcea78" />
 <br>
-</details>
 <br>
 <img width="25" height="25" alt="tumblr_16f4f462be972a605d8ba5bf47e0a70a_45407b1e_75" src="https://github.com/user-attachments/assets/91eb1fdf-40b6-498c-90c3-a792c00ef607" />
+</details>
 $$\color{#B8C3B3} \text{𓈒⠀Frank⠀⠀♱⠀⠀16　 𓎟𓎟 　he　him⠀𓈒}$$ 
 <img width="25" height="25" alt="tumblr_c4aa1f966e50e829b9e5d0175d6a61b9_6a8450a7_75" src="https://github.com/user-attachments/assets/a4b3c75f-591f-4e4f-a482-7e6de44a96a1" />
 <br>
