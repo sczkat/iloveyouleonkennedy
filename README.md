@@ -14,7 +14,7 @@
 <br>
 ──　､⠀c + h  ✓ ‎ +⠀ 𓈒!
 <br>
-dni :⠀spardacest.⠀ ◟⠀resident evil elitists ꒱ 𓈒
+dni :⠀spardacest.⠀ ◟⠀resident evil elitists. ꒱ 𓈒
 <br>
 <br>
 <img width="366" height="45" alt="image_2026-09-27_012706584" src="https://github.com/user-attachments/assets/abe35c66-bff8-47fd-8a86-36d6bf5f4266" />
