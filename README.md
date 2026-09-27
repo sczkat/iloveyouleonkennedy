@@ -18,11 +18,12 @@
 dni :⠀spardacest⠀ <img width="25" height="25" alt="tumblr_e6dba8165f2fac602c5e77c677a63fe2_2024d105_100" src="https://github.com/user-attachments/assets/6e0dd62e-4682-4b66-b74d-faa3f0fea7fb"/>⠀ resident evil elitists ꒱ 𓈒
 <br>
 <br>
-<img width="400" height="46" alt="image_2026-09-27_012706584" src="https://github.com/user-attachments/assets/abe35c66-bff8-47fd-8a86-36d6bf5f4266" />
+<img width="400" height="10" alt="image_2026-09-27_012706584" src="https://github.com/user-attachments/assets/abe35c66-bff8-47fd-8a86-36d6bf5f4266" />
 <br>
 <a href="https://open.spotify.com/user/q37rkcovd02nha9ny4hisgp35">
   <img src="https://spotify-recently-played.jeffreyca.workers.dev/svg?user=q37rkcovd02nha9ny4hisgp35&amp;count=1&amp;header=0&amp;time=0&amp;logo=0&amp;avatar=0&amp;now_playing=0&amp;bg_color=2f2a2b&amp;text_color=7a7577&amp;artist_color=7a7577&amp;meta_color=9c9193" alt="Spotify recently played" width="400" />
 </a>
+<br>
 <br>
 <img width="35" height="35" alt="68747470733a2f2f66696c652e67617264656e2f61686d68747435353646537757414b412f74756d626c725f35306231623531313232666266303762303139393562633732303738646232665f37313332323132375f37352e77656270" src="https://github.com/user-attachments/assets/26af4ef0-f33a-454b-817d-86f661edd56f" />
 
