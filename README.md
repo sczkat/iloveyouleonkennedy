@@ -26,11 +26,14 @@ dni :⠀spardacest⠀ <img width="25" height="25" alt="tumblr_e6dba8165f2fac602c
 </a>
 <br>
 <br>
-<img width="150" height="150" alt="Untitled78_20260927050824" src="https://github.com/user-attachments/assets/7174283c-e483-4fd7-a0f2-9d8eae4314b8" />
+<img width="150" height="150" alt="Untitled78_20260927051526" src="https://github.com/user-attachments/assets/c14174ea-cf18-4008-a121-5ebcf0ccd37a" />
 
-<img width="150" height="150" alt="Untitled78_20260927050809" src="https://github.com/user-attachments/assets/96c3fa72-df81-4112-8c10-736fad3c7640" />
 
-<img width="150" height="150" alt="Untitled78_20260927050818" src="https://github.com/user-attachments/assets/d3170b08-8d4e-4917-9922-01d779726b94" />
+<img width="150" height="150" alt="Untitled78_20260927051533" src="https://github.com/user-attachments/assets/7e257a36-74c4-4044-a4ba-34a21c08e5cb" />
+
+
+<img width="150" height="150" alt="Untitled78_20260927051537" src="https://github.com/user-attachments/assets/ca70269c-1a19-4654-a4dc-3b8b07a14142" />
+
 <br>
 <br>
 <img width="35" height="35" alt="68747470733a2f2f66696c652e67617264656e2f61686d68747435353646537757414b412f74756d626c725f35306231623531313232666266303762303139393562633732303738646232665f37313332323132375f37352e77656270" src="https://github.com/user-attachments/assets/26af4ef0-f33a-454b-817d-86f661edd56f" />
