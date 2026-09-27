@@ -22,6 +22,7 @@ dni :⠀spardacest⠀ <img width="25" height="25" alt="tumblr_e6dba8165f2fac602c
 <br>
 <br>
 <img width="35" height="35" alt="tumblr_714bae3d3c45351840a041bd8e523425_20889121_75" src="https://github.com/user-attachments/assets/a9c9654e-5d44-4a3d-b2c2-2dfef911b5a0" />
-
+<br>
+<img width="35" height="35" alt="68747470733a2f2f66696c652e67617264656e2f61686d68747435353646537757414b412f74756d626c725f35306231623531313232666266303762303139393562633732303738646232665f37313332323132375f37352e77656270" src="https://github.com/user-attachments/assets/26af4ef0-f33a-454b-817d-86f661edd56f" />
 
 </div>
