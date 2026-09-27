@@ -12,10 +12,10 @@
 ⠀𓈒⠀Frank⠀⠀♱⠀⠀16　 𓎟𓎟 　he　him⠀𓈒⠀ <img width="25" height="25" alt="tumblr_c4aa1f966e50e829b9e5d0175d6a61b9_6a8450a7_75" src="https://github.com/user-attachments/assets/a4b3c75f-591f-4e4f-a482-7e6de44a96a1" />
 <br>
 <br>
-──　､⠀c + h  ✓ ‎ +⠀ 𓈒!
+<img width="25" height="25" alt="68747470733a2f2f66696c652e67617264656e2f61686d68747435353646537757414b412f74756d626c725f35306231623531313232666266303762303139393562633732303738646232665f37313332323132375f37352e77656270" src="https://github.com/user-attachments/assets/26af4ef0-f33a-454b-817d-86f661edd56f" />──　､⠀c + h  ✓ ‎ +⠀ 𓈒!
 <br>
 <br>
-dni :⠀spardacest⠀ <img width="25" height="25" alt="68747470733a2f2f66696c652e67617264656e2f61686d68747435353646537757414b412f74756d626c725f35306231623531313232666266303762303139393562633732303738646232665f37313332323132375f37352e77656270" src="https://github.com/user-attachments/assets/26af4ef0-f33a-454b-817d-86f661edd56f" />  resident evil elitists ꒱ 𓈒
+dni :⠀spardacest⠀ <img width="25" height="25" alt="tumblr_e6dba8165f2fac602c5e77c677a63fe2_2024d105_100" src="https://github.com/user-attachments/assets/6e0dd62e-4682-4b66-b74d-faa3f0fea7fb"/>⠀ resident evil elitists ꒱ 𓈒
 <br>
 <br>
 <img width="366" height="45" alt="image_2026-09-27_012706584" src="https://github.com/user-attachments/assets/abe35c66-bff8-47fd-8a86-36d6bf5f4266" />
