@@ -1,5 +1,6 @@
 <div align="center">
 
+<details>
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4300&color=2F2A2B&center=true&vCenter=true&width=435&lines=%F0%9D%90%AC%F0%9D%90%A8+%F0%9D%90%A2+%F0%9D%90%AD%F0%9D%90%9A%F0%9D%90%A4%F0%9D%90%9E+%F0%9D%90%9A+%F0%9D%90%9D%F0%9D%90%AB%F0%9D%90%A2%F0%9D%90%A7%F0%9D%90%A4;%F0%9D%90%A8%F0%9D%90%AE%F0%9D%90%AD+%F0%9D%90%A8%F0%9D%90%9F+%F0%9D%90%9A%F0%9D%90%A7+%F0%9D%90%9E%F0%9D%90%A6%F0%9D%90%A9%F0%9D%90%AD%F0%9D%90%B2+%F0%9D%90%9B%F0%9D%90%A8%F0%9D%90%AD%F0%9D%90%AD%F0%9D%90%A5%F0%9D%90%9E;%F0%9D%90%A3%F0%9D%90%AE%F0%9D%90%AC%F0%9D%90%AD+%F0%9D%90%AD%F0%9D%90%A8+%F0%9D%90%A4%F0%9D%90%A7%F0%9D%90%A8%F0%9D%90%B0+%F0%9D%90%A2%F0%9D%90%AD'%F0%9D%90%AC+%F0%9D%90%A0%F0%9D%90%A8%F0%9D%90%A7%F0%9D%90%9E;%F0%9D%90%A2%F0%9D%90%AD+%F0%9D%90%AB%F0%9D%90%9E%F0%9D%90%A6%F0%9D%90%A2%F0%9D%90%A7%F0%9D%90%9D%F0%9D%90%AC+%F0%9D%90%A6%F0%9D%90%9E+%F0%9D%90%A8%F0%9D%90%9F;%F0%9D%90%AD%F0%9D%90%A1%F0%9D%90%9E+%F0%9D%90%9D%F0%9D%90%9A%F0%9D%90%B2%F0%9D%90%AC+%F0%9D%90%A8%F0%9D%90%9F+%F0%9D%90%A8%F0%9D%90%AE%F0%9D%90%AB+%F0%9D%90%A5%F0%9D%90%A8%F0%9D%90%AF%F0%9D%90%9E;%F0%9D%90%A1%F0%9D%90%A8%F0%9D%90%B0+%F0%9D%90%AD%F0%9D%90%A1%F0%9D%90%A8%F0%9D%90%AC%F0%9D%90%9E+%F0%9D%90%9D%F0%9D%90%9A%F0%9D%90%B2%F0%9D%90%AC+%F0%9D%90%9A%F0%9D%90%AB%F0%9D%90%9E+%F0%9D%90%A0%F0%9D%90%A8%F0%9D%90%A7%F0%9D%90%9E" alt="Typing SVG" /></a>
 
@@ -9,7 +10,6 @@
 <br>
 <br>
 <img width="25" height="25" alt="tumblr_16f4f462be972a605d8ba5bf47e0a70a_45407b1e_75" src="https://github.com/user-attachments/assets/91eb1fdf-40b6-498c-90c3-a792c00ef607" />
-<details>
 $$\color{#B8C3B3} \text{𓈒⠀Frank⠀⠀♱⠀⠀16　 𓎟𓎟 　he　him⠀𓈒}$$ 
 <img width="25" height="25" alt="tumblr_c4aa1f966e50e829b9e5d0175d6a61b9_6a8450a7_75" src="https://github.com/user-attachments/assets/a4b3c75f-591f-4e4f-a482-7e6de44a96a1" />
 <br>
